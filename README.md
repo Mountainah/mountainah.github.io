@@ -1,3 +1,0 @@
-# mountainah.github.io
-
-Hello 😊
